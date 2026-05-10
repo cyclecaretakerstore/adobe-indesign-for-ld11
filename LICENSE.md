@@ -1,4 +1,4 @@
-
+Get the ultimate Adobe InDesign for macOS script with Adobe InDesign for macOS rare Script - gradient maps and cloud sync. Featuring gradient maps and cloud sync, it's the best
 
 
 
